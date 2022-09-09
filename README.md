@@ -55,8 +55,8 @@
 ![alt text](https://g.top4top.io/p_2443ijrq71.png)        
 - ***So Now We Can Drop Some Dart And Enter The New Count Or Just Choose "Smaller Than", Hmmm But Its Look Like We Need To Drop More.***     
 - ***And Now I Found The Address Of The Dart So What Ill Do With It, You Can Change The Address By Double Click At The Value, Then Click At The Same Value At The Workspace.***    
+![alt text](https://i.top4top.io/p_2443zc5wv1.png)   
 ![alt text](https://j.top4top.io/p_24438v2q82.png)         
-![alt text](https://i.top4top.io/p_2443zc5wv1.png)    
 - ***So After That You Can Change The Value And Pov:***    
 ![alt text](https://e.top4top.io/p_2443uwvm61.png)        
 ## Lets Stop Here
